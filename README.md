@@ -1,4 +1,4 @@
-# Prompt Of The Year: 2023 🌟
+# Prompt Of The Year: 2023 
 
 ## Introduction
 
